@@ -3,8 +3,8 @@ List of gifts and where to get them
 
 ### Lost Art Press
 
-> Online only
-> Klarna/Shopify
+> Online only  
+> Klarna/Shopify  
 
 **Tools:**
 - [Planing Stop](https://lostartpress.com/products/crucible-planing-stop) - $63
@@ -21,16 +21,16 @@ List of gifts and where to get them
 
 ### Lee Valley
 
-> Online only
-> No Shopify or Klarna
+> Online only  
+> No Shopify or Klarna  
 
 - [gift card](https://www.leevalley.com/en-us/giftcards/purchaseelectronicgiftcards)
 - [Tenon cutter](https://www.leevalley.com/en-us/shop/tools/hand-tools/dowel-and-tenon-cutters/42299-veritas-power-tenon-cutters) - $129
 - [Plywood saw](https://www.leevalley.com/en-us/shop/tools/hand-tools/saws/japanese/32939-japanese-plywood-saw) - $40
 ### Woodcraft 
 
-> offers klarna
-> Has store in Plano 
+> offers klarna  
+> Has store in Plano  
 
 Carving Chisels:
 - [Carving chisel 7-14mm](https://www.woodcraft.com/products/pfeil-swiss-made-fishtail-gouge) - $55
