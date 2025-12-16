@@ -33,7 +33,7 @@ List of gifts and where to get them
 > offers klarna  
 > Has store in Plano  
 
-??? note **Address** 
+??? note "**Address**" 
 
     601 W Plano Pkwy #145
     Plano, TX 75075
