@@ -1,5 +1,5 @@
 # Christmas List
-List of gifts and where to get them
+List of gifts and where to purchase
 
 ### Lost Art Press
 
