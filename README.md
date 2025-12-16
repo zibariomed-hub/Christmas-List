@@ -27,11 +27,14 @@ List of gifts and where to get them
 - [gift card](https://www.leevalley.com/en-us/giftcards/purchaseelectronicgiftcards)
 - [Tenon cutter](https://www.leevalley.com/en-us/shop/tools/hand-tools/dowel-and-tenon-cutters/42299-veritas-power-tenon-cutters) - $129
 - [Plywood saw](https://www.leevalley.com/en-us/shop/tools/hand-tools/saws/japanese/32939-japanese-plywood-saw) - $40
+
 ### Woodcraft 
 
 > offers klarna  
 > Has store in Plano  
+> **address:** 601 W Plano Pkwy #145, Plano, TX 75075
 
 Carving Chisels:
 - [Carving chisel 7-14mm](https://www.woodcraft.com/products/pfeil-swiss-made-fishtail-gouge) - $55
 - [Carving chisel V-shape](https://www.woodcraft.com/products/pfeil-swiss-made-v-parting-tool) - $55
+- [Two 48" Clamps](https://www.woodcraft.com/products/dubuque-clamp-works-universal-bar-clamp)
