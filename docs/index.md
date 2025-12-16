@@ -6,7 +6,7 @@ List of gifts and where to get them
 > Online only  
 > Klarna/Shopify  
 
-**Tools:**
+**Tools:**  
 - [Planing Stop](https://lostartpress.com/products/crucible-planing-stop) - $63  
 - [holdfast](https://lostartpress.com/products/iron-holdfast) - $156  
 - [Large Nail hammer](https://lostartpress.com/products/exeter-pattern-furniture-makers-hammer) - $133  
@@ -14,12 +14,12 @@ List of gifts and where to get them
 - [Lump Hammer](https://lostartpress.com/products/lump-hammer) - $137  
 - [card scraper](https://lostartpress.com/products/crucible-card-scraper) - $25  
 
-**Books:**
+**Books:**  
 - [good eye](https://lostartpress.com/products/good-eye) - $29  
 - [intelligent hand](https://lostartpress.com/products/the-intelligent-hand) - $55  
 - [carving the acanthus leaf](https://lostartpress.com/products/carving-the-acanthus-leaf) - $54  
 
-### Lee Valley
+### Lee Valley  
 
 > Online only  
 > No Shopify or Klarna  
@@ -34,10 +34,11 @@ List of gifts and where to get them
 > Has store in Plano  
 
 ??? note **Address** 
+
     601 W Plano Pkwy #145
     Plano, TX 75075
 
-Carving Chisels:
+**Carving Chisels:**  
 - [Carving chisel 7-14mm](https://www.woodcraft.com/products/pfeil-swiss-made-fishtail-gouge) - $55  
 - [Carving chisel V-shape](https://www.woodcraft.com/products/pfeil-swiss-made-v-parting-tool) - $55  
 - [Two 48" Clamps](https://www.woodcraft.com/products/dubuque-clamp-works-universal-bar-clamp)  
