@@ -35,8 +35,9 @@ List of gifts and where to get them
 
 ??? note "**Address**" 
 
-    601 W Plano Pkwy #145
-    Plano, TX 75075
+    601 W Plano Pkwy #145  
+    Plano, TX 75075  
+    [Woodcraft - Apple Maps](https://maps.apple/p/keCI1V1Y~IDUbV)  
 
 **Carving Chisels:**  
 - [Carving chisel 7-14mm](https://www.woodcraft.com/products/pfeil-swiss-made-fishtail-gouge) - $55  
